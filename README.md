@@ -9,7 +9,7 @@
 #### ‎ ‎ᯓ★ Come up to me freely but I might not be very social as I have a hard time talking with others 
 ## ‎ ‎ 
 
-## ⋅──────────────────────────⊱༺-♰-༻⊰──────────────────────────⋅
+## ⋅─────────────────────────⊱༺-♰-༻⊰─────────────────────────⋅
 ##
 ###### If you're still here you should sign my ata :3
 
